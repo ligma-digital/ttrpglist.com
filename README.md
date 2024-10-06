@@ -1,2 +1,1 @@
-# [ttrpglist.com](https://www.ttrpglist.com)
-
+# [ttrpglist.com](https://ttrpglist.com)
